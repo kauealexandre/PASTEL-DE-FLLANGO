@@ -1,4 +1,4 @@
-# PASTEL-DE-FLLANGO
+# PASTEL-DE-FLANGO
 sou aluno no estado de são paulo e criei essa bagaça para compartilha meus progetos
 
 TO COM FOME
